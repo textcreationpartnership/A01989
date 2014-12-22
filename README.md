@@ -35,358 +35,84 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The strange discovery a tragi-comedy. Written by I.G. Gent.J. G. (John Gough), fl. 1640.1640Approx. 
+
 #####Body#####
+
+1. The Prologue.
+
+1. The perſons of the Play.
+
+1. THE STRANGE DISCOVERY, A Trage-Comedie.
 Actus primi Scena prima.Enter Caricles, ſometimes Apollos Prieſt at Delphos in the habit of a Pilgri
-    _ Actus primi Scena prima.
+      * Actus primi Scena prima.
 
-    _ Actus primi  Scena ſecunda.
+      * Actus primi  Scena ſecunda.
 
-    _ Actus primi, Scena tertia.
+      * Actus primi, Scena tertia.
 
-    _ Actus primi, Scena quarta.
+      * Actus primi, Scena quarta.
 
-    _ Actus primi  Scena quinta.
-
-    _ Actus ſecundi, Scena prima.
-
-    _ Actus ſecundi, Scena ſecunda.
-
-    _ Actus ſecundi, Scena tertia.
-
-    _ Actus ſecundi Scena quarta.
-
-    _ Actus Secundi, Scena quinta.
-
-    _ Actus secundi, Scena sexta.
-
-    _ Actus ſecundi, Scena ſeptima.
-
-    _ Actus ſecundi, Scena octava.
-
-    _ Actus ſecundi, Scena nona.
-
-    _ Actus ſecundi, Scena decima.
-
-    _ Actus tertii, Scena prima.
-
-    _ Actus tertii, Scena ſecunda.
-
-    _ Actus tertii  Scena tertia.
-
-    _ Actus tertii, Scena quarta.
-
-    _ Actus tertii, Scena quinta.
-
-    _ Actus tertii, Scena ſexta.
-
-    _ Actus tertii, Scena ſeptima.
-
-    _ Actus quarti, Scena prima.
-
-    _ Actus quarti, Scena ſecunda.
-
-    _ Actus quarti, Scena tertia.
-
-    _ Actus quarti, Scena quarta.
-
-    _ Actus quarti, Scena quinta.
-
-    _ Actus quarti, Scena ſexta.
-
-    _ Actus quarti, Scena ſeptima.
-
-    _ Actus quinti, Scena prima.
-
-    _ Actus quinti, Scena ſecunda.
-
-    _ Actus quinti, Scena tertia.
-
-    _ Actus quinti, Scena quarta.
-
-    _ Actus quinti, Scena quinta.
-
-    _ Actus quinti, Scena ultima.
+      * Actus primi  Scena quinta.
 Actus ſecundi, Scena prima.Enter Calaſiris Iſis prieſt at Memphis.Am I the goodeſſe Iſis prieſt, and
-    _ Actus primi Scena prima.
+      * Actus ſecundi, Scena prima.
 
-    _ Actus primi  Scena ſecunda.
+      * Actus ſecundi, Scena ſecunda.
 
-    _ Actus primi, Scena tertia.
+      * Actus ſecundi, Scena tertia.
 
-    _ Actus primi, Scena quarta.
+      * Actus ſecundi Scena quarta.
 
-    _ Actus primi  Scena quinta.
+      * Actus Secundi, Scena quinta.
 
-    _ Actus ſecundi, Scena prima.
+      * Actus secundi, Scena sexta.
 
-    _ Actus ſecundi, Scena ſecunda.
+      * Actus ſecundi, Scena ſeptima.
 
-    _ Actus ſecundi, Scena tertia.
+      * Actus ſecundi, Scena octava.
 
-    _ Actus ſecundi Scena quarta.
+      * Actus ſecundi, Scena nona.
 
-    _ Actus Secundi, Scena quinta.
-
-    _ Actus secundi, Scena sexta.
-
-    _ Actus ſecundi, Scena ſeptima.
-
-    _ Actus ſecundi, Scena octava.
-
-    _ Actus ſecundi, Scena nona.
-
-    _ Actus ſecundi, Scena decima.
-
-    _ Actus tertii, Scena prima.
-
-    _ Actus tertii, Scena ſecunda.
-
-    _ Actus tertii  Scena tertia.
-
-    _ Actus tertii, Scena quarta.
-
-    _ Actus tertii, Scena quinta.
-
-    _ Actus tertii, Scena ſexta.
-
-    _ Actus tertii, Scena ſeptima.
-
-    _ Actus quarti, Scena prima.
-
-    _ Actus quarti, Scena ſecunda.
-
-    _ Actus quarti, Scena tertia.
-
-    _ Actus quarti, Scena quarta.
-
-    _ Actus quarti, Scena quinta.
-
-    _ Actus quarti, Scena ſexta.
-
-    _ Actus quarti, Scena ſeptima.
-
-    _ Actus quinti, Scena prima.
-
-    _ Actus quinti, Scena ſecunda.
-
-    _ Actus quinti, Scena tertia.
-
-    _ Actus quinti, Scena quarta.
-
-    _ Actus quinti, Scena quinta.
-
-    _ Actus quinti, Scena ultima.
+      * Actus ſecundi, Scena decima.
 Actus tertii, Scena prima.Enter Ariſtippus ſolus in a melancholy humour.Ariſtip.How have I plai'd th
-    _ Actus primi Scena prima.
+      * Actus tertii, Scena prima.
 
-    _ Actus primi  Scena ſecunda.
+      * Actus tertii, Scena ſecunda.
 
-    _ Actus primi, Scena tertia.
+      * Actus tertii  Scena tertia.
 
-    _ Actus primi, Scena quarta.
+      * Actus tertii, Scena quarta.
 
-    _ Actus primi  Scena quinta.
+      * Actus tertii, Scena quinta.
 
-    _ Actus ſecundi, Scena prima.
+      * Actus tertii, Scena ſexta.
 
-    _ Actus ſecundi, Scena ſecunda.
-
-    _ Actus ſecundi, Scena tertia.
-
-    _ Actus ſecundi Scena quarta.
-
-    _ Actus Secundi, Scena quinta.
-
-    _ Actus secundi, Scena sexta.
-
-    _ Actus ſecundi, Scena ſeptima.
-
-    _ Actus ſecundi, Scena octava.
-
-    _ Actus ſecundi, Scena nona.
-
-    _ Actus ſecundi, Scena decima.
-
-    _ Actus tertii, Scena prima.
-
-    _ Actus tertii, Scena ſecunda.
-
-    _ Actus tertii  Scena tertia.
-
-    _ Actus tertii, Scena quarta.
-
-    _ Actus tertii, Scena quinta.
-
-    _ Actus tertii, Scena ſexta.
-
-    _ Actus tertii, Scena ſeptima.
-
-    _ Actus quarti, Scena prima.
-
-    _ Actus quarti, Scena ſecunda.
-
-    _ Actus quarti, Scena tertia.
-
-    _ Actus quarti, Scena quarta.
-
-    _ Actus quarti, Scena quinta.
-
-    _ Actus quarti, Scena ſexta.
-
-    _ Actus quarti, Scena ſeptima.
-
-    _ Actus quinti, Scena prima.
-
-    _ Actus quinti, Scena ſecunda.
-
-    _ Actus quinti, Scena tertia.
-
-    _ Actus quinti, Scena quarta.
-
-    _ Actus quinti, Scena quinta.
-
-    _ Actus quinti, Scena ultima.
+      * Actus tertii, Scena ſeptima.
 Actus quarti, Scena prima.Enter Calaſiris, Theagines and Cariclea.Calaſ.Come let's away my children,
-    _ Actus primi Scena prima.
+      * Actus quarti, Scena prima.
 
-    _ Actus primi  Scena ſecunda.
+      * Actus quarti, Scena ſecunda.
 
-    _ Actus primi, Scena tertia.
+      * Actus quarti, Scena tertia.
 
-    _ Actus primi, Scena quarta.
+      * Actus quarti, Scena quarta.
 
-    _ Actus primi  Scena quinta.
+      * Actus quarti, Scena quinta.
 
-    _ Actus ſecundi, Scena prima.
+      * Actus quarti, Scena ſexta.
 
-    _ Actus ſecundi, Scena ſecunda.
-
-    _ Actus ſecundi, Scena tertia.
-
-    _ Actus ſecundi Scena quarta.
-
-    _ Actus Secundi, Scena quinta.
-
-    _ Actus secundi, Scena sexta.
-
-    _ Actus ſecundi, Scena ſeptima.
-
-    _ Actus ſecundi, Scena octava.
-
-    _ Actus ſecundi, Scena nona.
-
-    _ Actus ſecundi, Scena decima.
-
-    _ Actus tertii, Scena prima.
-
-    _ Actus tertii, Scena ſecunda.
-
-    _ Actus tertii  Scena tertia.
-
-    _ Actus tertii, Scena quarta.
-
-    _ Actus tertii, Scena quinta.
-
-    _ Actus tertii, Scena ſexta.
-
-    _ Actus tertii, Scena ſeptima.
-
-    _ Actus quarti, Scena prima.
-
-    _ Actus quarti, Scena ſecunda.
-
-    _ Actus quarti, Scena tertia.
-
-    _ Actus quarti, Scena quarta.
-
-    _ Actus quarti, Scena quinta.
-
-    _ Actus quarti, Scena ſexta.
-
-    _ Actus quarti, Scena ſeptima.
-
-    _ Actus quinti, Scena prima.
-
-    _ Actus quinti, Scena ſecunda.
-
-    _ Actus quinti, Scena tertia.
-
-    _ Actus quinti, Scena quarta.
-
-    _ Actus quinti, Scena quinta.
-
-    _ Actus quinti, Scena ultima.
+      * Actus quarti, Scena ſeptima.
 Actus quinti, Scena prima.Enter Hydaſpes and Syſimethres, with attendance.Hydaſp.Thus farre have we 
-    _ Actus primi Scena prima.
+      * Actus quinti, Scena prima.
 
-    _ Actus primi  Scena ſecunda.
+      * Actus quinti, Scena ſecunda.
 
-    _ Actus primi, Scena tertia.
+      * Actus quinti, Scena tertia.
 
-    _ Actus primi, Scena quarta.
+      * Actus quinti, Scena quarta.
 
-    _ Actus primi  Scena quinta.
+      * Actus quinti, Scena quinta.
 
-    _ Actus ſecundi, Scena prima.
-
-    _ Actus ſecundi, Scena ſecunda.
-
-    _ Actus ſecundi, Scena tertia.
-
-    _ Actus ſecundi Scena quarta.
-
-    _ Actus Secundi, Scena quinta.
-
-    _ Actus secundi, Scena sexta.
-
-    _ Actus ſecundi, Scena ſeptima.
-
-    _ Actus ſecundi, Scena octava.
-
-    _ Actus ſecundi, Scena nona.
-
-    _ Actus ſecundi, Scena decima.
-
-    _ Actus tertii, Scena prima.
-
-    _ Actus tertii, Scena ſecunda.
-
-    _ Actus tertii  Scena tertia.
-
-    _ Actus tertii, Scena quarta.
-
-    _ Actus tertii, Scena quinta.
-
-    _ Actus tertii, Scena ſexta.
-
-    _ Actus tertii, Scena ſeptima.
-
-    _ Actus quarti, Scena prima.
-
-    _ Actus quarti, Scena ſecunda.
-
-    _ Actus quarti, Scena tertia.
-
-    _ Actus quarti, Scena quarta.
-
-    _ Actus quarti, Scena quinta.
-
-    _ Actus quarti, Scena ſexta.
-
-    _ Actus quarti, Scena ſeptima.
-
-    _ Actus quinti, Scena prima.
-
-    _ Actus quinti, Scena ſecunda.
-
-    _ Actus quinti, Scena tertia.
-
-    _ Actus quinti, Scena quarta.
-
-    _ Actus quinti, Scena quinta.
-
-    _ Actus quinti, Scena ultima.
+      * Actus quinti, Scena ultima.
 
 **Types of content**
 
